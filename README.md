@@ -1,4 +1,4 @@
-I am a civil engineer and UI/UX designer currently pursuing an MSc in Environmental Management with Advanced Practice.
+I am a civil engineer and UI/UX designer currently pursuing an MSc in Environmental Management (with Advanced Practice).
 
 To further broaden my expertise, I joined the AI Workforce programme with the goal of developing my technical skills in artificial intelligence and integrating them into my professional and academic disciplines.
 
