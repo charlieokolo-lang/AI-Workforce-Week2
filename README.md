@@ -1,1 +1,1 @@
-# ProjectTasks-Platformexplorers-Cohort2
+# AI-Workforce-Week2
